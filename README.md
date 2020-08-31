@@ -1,4 +1,32 @@
 # Computing-Work
-HI MY NAME IS JEFF
-HI MY NAME IS ACTUALY HUAJOSH.EXE BECAUSE I EXECUTED MYSELF!
-OH NO!!!!!
+:trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand:
